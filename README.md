@@ -2,3 +2,6 @@
 <p align="center">
   🎈𝕥𝕣𝕒𝕔𝕖𝕣ﾒ🤡 [Support Me] https://www.patreon.com/tracerx
 </p>
+<p align="center">
+FOR EDUCATIONAL PERSONAL PURPOSES ONLY
+</p>
