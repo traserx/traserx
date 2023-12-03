@@ -3,5 +3,5 @@
   🎈𝕥𝕣𝕒𝕔𝕖𝕣ﾒ🤡 [Support Me] https://www.patreon.com/tracerx
 </p>
 <p align="center">
-FOR EDUCATIONAL PERSONAL PURPOSES ONLY
+FOR EDUCATIONAL PRIVATE PERSONAL PURPOSES ONLY
 </p>
