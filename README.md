@@ -6,5 +6,5 @@
 FOR EDUCATIONAL PRIVATE PERSONAL PURPOSES ONLY
 </p>
 <p align="center">
-Support Me @ <a href="https://www.patreon.com/tracerx">Patreon</a>
+Repositories @ <a href="https://www.patreon.com/tracerx">Patreon</a>
 </p>
